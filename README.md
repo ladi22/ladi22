@@ -2,4 +2,4 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning progrmming 
 - 💞️ I’m looking to collaborate on programming
-- 📫 Facebook - Ladi Papiashvili, Instagram - papiashvili_ladi, Phone/Whatsapp - +995 568 89 68 12.
+- 📫 Facebook - Ladi Papiashvili, Instagram - papiashvili_ladi, Phone/Whatsapp - +995 599 038 240.
